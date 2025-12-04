@@ -1,0 +1,78 @@
+# King Gnu – SO BAD
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+KING GNU IS DEAD
+BUT THE KING IS NOT
+BECAUSE IT'S YOU
+最悪で最高♡
+最悪で最高♡
+今世どう成ろうと
+一蓮托生よ
+最悪で最高♡
+最悪で最高♡
+憂いなどは無用
+この人生劇場
+最悪で最高♡
+よそはよそ
+うちはうち
+メタは外
+鬼は内
+ロクデナシの正義は
+お呼びじゃない
+学ばぬ争いの歴史
+サイテーの友達と
+ほったらかし夜の始まり
+最悪で最高♡
+最悪で最高♡
+涙が溢れそう
+いつの日からだろう
+最悪で最高♡
+最悪で最高♡
+夢遙か蜃気楼
+この人生劇場
+最悪で最高♡
+まつくろなたいよう
+かげろうゆらゆらゆれるとうきやう
+いふほどわるくないわ
+さあえんどろーるであいませう
+よそはよそ
+うちはうち
+沈みゆくこの國
+狂わせる蜘蛛の糸
+蚊帳の外 常日頃
+絵空事の政治
+ほったらかし夜の始まり
+最悪で最高♡
+最悪で最高♡
+最悪で最高♡
+今世どう成ろうと
+一蓮托生よ
+最悪で最高♡
+最悪で最高♡
+憂いなどは無用
+この人生劇場
+最悪で最高♡
+SO BAD
+I WANT THIS SO BAD
+(これも欲しい )
+I WANT THAT SO BAD
+(あれも欲しい)
+I WANT THIS SO , I WANT THAT SO
+何もかも SO BAD
+I WANT THIS SO BAD
+I WANT THAT SO BAD
+I WANT THIS SO , I WANT THAT SO
+綺麗事はSO BAD
+I WANT THIS SO BAD
+I WANT THAT SO BAD
+I WANT THIS SO , I WANT THAT SO
+I WANT THAT SO BAD
+I WANT THIS SO BAD
+I WANT THAT SO BAD
+I WANT THIS SO , I WANT THAT SO
+I WANT THAT SO
+SO BAD
+(最悪で最高)
+```
